@@ -1,2 +1,0 @@
-# Freya
-Freya's Adventures
